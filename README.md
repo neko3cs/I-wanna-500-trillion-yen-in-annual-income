@@ -1,0 +1,1 @@
+# I-wanna-500-trillion-yen-in-annual-income
